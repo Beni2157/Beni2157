@@ -1,16 +1,30 @@
-## Hi there 👋
+oiiii, rs!!!
 
-<!--
-**Beni2157/Beni2157** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+eu sou o Heitor Benites Wenceslau. 
 
-Here are some ideas to get you started:
+tenho 17 anos, estou atualmente no terceiro ano do ensino medio
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Estudo música e infelizmente estudo desenvolvimento de websites :/
+
+piada: 
+havia um macaco "xarrando a planta" na arvore, ai a lagartixa chegou e falou
+
+- caraca macaco, que olhão vermelho é esse?
+
+ai o macaco ofereceu uma xarrada da planta dele e a lagartixa disse
+
+- caraca macaco, deu mó sede xarrar esssa planta
+
+ai o macaco viou e falou
+
+- vai no rio aqui perto
+
+ai a lagartixa foi. chegando la o jacaré virou pra ela e disse
+
+- caraca lagartixa, e esse olhão vermelho?
+
+- se tu quiser tem la com o macaco
+
+ai, quando o jacaré tava chegando, o macaco espantado virou e falou
+
+- CARACA LARGARTIXA!! bebeu água pa carai...
